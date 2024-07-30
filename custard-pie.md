@@ -4,7 +4,7 @@
 - 3 tablespoons sugar
 - ⅛ teaspoon salt
 - 1½ cups milk
-- Few gratings nutmeg
+- Few gratings of nutmeg
 
 Beat eggs slightly, add sugar, salt, and milk. Line plate with paste, and build up a fluted rim. Strain in the mixture and sprinkle with few gratings nutmeg.
 
