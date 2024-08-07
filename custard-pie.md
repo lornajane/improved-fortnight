@@ -1,4 +1,4 @@
-# Custard Pie
+# Custard Pies
 
 - 2 eggs
 - 3 tablespoons sugar
